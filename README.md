@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Lak0nichniy
 - 👀 I’m interested in ..
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...ndhnhmjhfcgn
+- 💞️ I’m looking to collaborate on ...nrtheragre
 - 📫 How to reach me ...9irweeig
 - 😄 Pronouns: .regefewf
 - ⚡ Fun fact: money money money
