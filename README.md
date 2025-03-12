@@ -2,7 +2,7 @@
 - 👀 I’m interested in ..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...hyrjnsyj
-- 📫 How to reach me ...tdeshnfdmndyth,
+- 📫 How to reach me ...bvcxuiytuvfrtd
 - 😄 Pronouns: .regefewf
 - ⚡ Fun fact: money money money
 Lak0nichniy/Lak0nichniy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
